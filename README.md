@@ -1,2 +1,2 @@
-This Project Is No Longer Going Again
+You can help if you want, Pidgeon website project
 
